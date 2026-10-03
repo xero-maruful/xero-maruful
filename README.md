@@ -1,7 +1,8 @@
-(https://i.ibb.co.com/VpDK4rMp/gitttt.png)
+![I am xero-maruful](https://i.ibb.co.com/VpDK4rMp/gitttt.png)
+
 ### Hi there 👋, my name is Maruful Islam Hridoy
 #### I am xero-maruful
-![I am xero-maruful]
+
 
 ### 🚀 About Me
 
